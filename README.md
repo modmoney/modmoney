@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fresh
+- 👀 I’m interested in learning
